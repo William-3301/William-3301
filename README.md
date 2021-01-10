@@ -2,4 +2,4 @@
 
 - Studyng Electronics technician at IFBA;
 - Learning Computer Science before college;
-- 15 years old.
+- 16 years old.
